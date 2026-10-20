@@ -1,3 +1,5 @@
+### 👉 [点我立即在线敲木鱼（手机电脑都能玩）](https://mcd-wooden-fish.app.workbuddy.host/?sharecode=73VIRNVJ4I)
+
 # 麦门功德+1 · 赛博木鱼（打工人版）
 
 > 麦当劳程序员创意开发大赛 · 基于麦当劳官方 MCP 能力开发的趣味 Skill  
